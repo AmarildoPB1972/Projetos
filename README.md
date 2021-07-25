@@ -16,7 +16,7 @@ My credentials include a Master's in Space Science and Technology from the Aeron
 **Links:**
 * [Blog](http://sigmoidal.ai)
 * [LinkedIn](https://www.linkedin.com/in/amarildo-batista-a0023a37/)
-* [Medium](https://www.medium.com)
+* [Medium](https://medium.com/@amarildopolvora)
 
 
 ## Projetos:
